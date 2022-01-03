@@ -41,6 +41,14 @@ Should one wish to reach me, feel free to message me via [LinkedIn](https://www.
 [Email](mhrezk5@hotmail.com) or through the [YouTube Channel posted above](https://www.youtube.com/channel/UC-J7A41qw6Vvqm5zSaSza_w)!
 
 
+
+---
+---
+---
+
+
+
+
 _A knight, a knight, one stands tall._
 
 _A knight, a knight, shall heed the call._ 
